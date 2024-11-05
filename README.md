@@ -1,1 +1,0 @@
-# ferramentadeestudo2.0
